@@ -1,2 +1,0 @@
-# intanadly
-happy eighteen
